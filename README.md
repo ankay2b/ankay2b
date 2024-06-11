@@ -7,7 +7,7 @@ MEU NOME É KAYQUE EMANUEL
 - Estou me desenvolvendo na linguagem javaScript
 - Utilizo este espaço para minha organização e compartilhamento dos meu projeto desenvolvidos
 
-- ### VOCÊ PODE EMTRAR EM ONTATO COMIGO PELO 📧
+- ### VOCÊ PODE EMTRAR EM CONTATO COMIGO PELO 📧
 
 0000112420460xsp@al.educacao.sp.gov.br
 
